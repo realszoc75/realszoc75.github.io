@@ -1,3 +1,5 @@
+[2026](https://realszoc75.github.io/2026/2026.html)  
+[2025](https://realszoc75.github.io/2025/2025.html)  
 [2024](https://realszoc75.github.io/2024/2024.html)  
 [2023](https://realszoc75.github.io/2023/2023.html)  
 [2022](https://realszoc75.github.io/2022/2022.html)  
